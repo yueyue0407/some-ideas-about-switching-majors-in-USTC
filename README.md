@@ -1,1 +1,1 @@
-# some-ideas-about-switching-majors-in-USTC
+# some ideas about switching majors in USTC
